@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...26
 - 📫 How to reach me ...adsasuyafdrgrqqw
 - 😄 Pronouns: ...474448
-- ⚡ Fun fact: ...nvn
+- ⚡ Fun fact: ...nvnvxc
 46452sdsdf44465456asd
 <!---sdsdfgrgrzazaaz
 dsederefa/dsederefa is a ✨ special ✨ repository because its `README.md` (this file) appears on your 256 profile.456sdf
