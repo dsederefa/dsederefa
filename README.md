@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dsederefa
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...26bfgfg
+- 💞️ I’m looking to collaborate on ...26bfgfggerersdc
 - 📫 How to reach me ...adsasuyafdrgrqqw9596u66u
 - 😄 Pronouns: ...474448shfdfg
 - ⚡ Fun fact: ...nvnvxcxcvnhgnghsef
