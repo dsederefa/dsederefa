@@ -3,7 +3,7 @@ zcx- 👋 Hi, I’m @dsederefa
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...26bfgfggerersdc
 - 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer
-- 😄 Pronouns: ...hngh
+- 😄 Pronouns: ...hnghrger
 - ⚡ Fun fact: ...nvnvxcxcvnhgnghsefbnbnfgb
 46452sdsdf44465456asdhytsfd
 <!---sdsdfgrgrzazaaz
