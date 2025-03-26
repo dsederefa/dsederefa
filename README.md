@@ -1,7 +1,7 @@
 zcx- 👋 Hi, I’m @dsederefa
 - 👀 I’m interested in ...bf
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...26bfgfggerersdcghnghn
+- 💞️ I’m looking to collaborate on ...26bfgfggerersdcghnghnre
 - 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer,.qweqwrewasdsadsxcvgbg
 - 😄 Pronouns: ...hnghrgerytbnmbn
 - ⚡ Fun fact: ...nvnvxcxcvnhgnghsefbnbnfgbgbfbsdv
