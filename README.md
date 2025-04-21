@@ -2,7 +2,7 @@ zcx- 👋 Hi, I’m @dsederefa
 - 👀 I’m interested in ...bf
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...26bfgfggerersdcghnghnre555fgbfgbg
-- 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer,.qweqwrewasdsadsxcvgbggbff02,kk,87bgfddf56262
+- 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer,.qweqwrewasdsadsxcvgbggbff02,kk,87bgfddf56262cd
 - 😄 Pronouns: ...hnghrgerytbnmbn868xcxc
 - ⚡ Fun fact: ...nvnvxcxcvnhgnghsefbnbnfgbgbfbsdvdfdfg
 46452sdsdf44465456asdhytsfdkjnhuygfdsdjmhjmh
