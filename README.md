@@ -3,7 +3,7 @@ fgnfgngzcx- 👋 Hi, I’m @dsederefa
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...26bfgfggerersdcghnghnre555fgbfgbggrerggeg
 - 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer,.qweqwrewasdsadsxcvgbggbff02,kk,87bgfddf56262cdrtgjhmhhjmgfbfffgerfd,jkjkjj
-- 😄 Pronouns: ...hnghrgerytbnmbn868xcxcdsfsdiololioilkujhcbcvc
+- 😄 Pronouns: ...hnghrgerytbnmbn868xcxcdsfsdiololioilkujhcbcvctuyutt
 - ⚡ Fun fact: ...nvnvxcxcvnhgnghsefbnbnfgbgbfbsdvdfdfgreererfngnfggfngf
 46452sdsdf44465456asdhytsfdkjnhuygfdsdjmhjmhnhgghhngtyuuttu
 <!---sdsdfgrgrzazaazasdbxgrgreregreadadsadssdfdds
