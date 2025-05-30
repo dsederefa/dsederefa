@@ -1,6 +1,6 @@
 fgnfgngzcx- 👋 Hi, I’m @dsederefa
 - 👀 I’m interested in ...bffgbbfgdvffdcefewfdssdd
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...mhjjhmhj
 - 💞️ I’m looking to collaborate on ...26bfgfggerersdcghnghnre555fgbfgbggrerggegbfgfbgrgrgr
 - 📫 How to reach me ...adsasuyafdrgrqqw9596u66ufrer,.qweqwrewasdsadsxcvgbggbff02,kk,87bgfddf56262cdrtgjhmhhjmgfbfffgerfd,jkjkjjythyhtytg
 - 😄 Pronouns: ...hnghrgerytbnmbn868xcxcdsfsdiololioilkujhcbcvctuyutt
